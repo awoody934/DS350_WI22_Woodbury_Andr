@@ -1,4 +1,4 @@
-# Week 2 Notes
+# Week 2 Notes 
 
 ### My 4 Questions
 1) Why would a customer buy my product/service instead of a competitors?
