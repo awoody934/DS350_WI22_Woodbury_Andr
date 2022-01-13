@@ -4,7 +4,7 @@
 1) Why would a customer buy my product/service instead of a competitors?
 2) Which of our products/services are selling the most?
 3) Why is that product/service selling faster or more than our others?
-4) Where is the best place to start a cleaning business?
+4) Where is the best place to start a cleaning business ?
 
 
 ## Feedback from Others
